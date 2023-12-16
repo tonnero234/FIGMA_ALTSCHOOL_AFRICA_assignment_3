@@ -1,0 +1,1 @@
+# FIGMA_ALTSCHOOL_AFRICA_assignment_3
